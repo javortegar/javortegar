@@ -1,4 +1,4 @@
-¡BUENAS!😸
+¡BUENAS!
 ***
 - 🌳 Ingeniero en Recursos Naturales
 - 📚 Me interesan los datos espaciales, la programación y los bosques.
